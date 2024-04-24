@@ -10,6 +10,5 @@ Proceed in this way👇👇👇👇👇👇👇👇
 ![3](https://github.com/bigmohammad-official/RGB-Role/assets/141378165/cbbf7211-d065-4237-837d-fa858f4af4f2)
 ![4](https://github.com/bigmohammad-official/RGB-Role/assets/141378165/bb842a2b-4e6c-45b1-8bf0-ddf65cd3ad5b)
 
-```Good luck```
 
 Code by bigmohammad
